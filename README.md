@@ -1,2 +1,2 @@
-# Hello-
+# Hello
 Study Junghyun Running(SJR)
